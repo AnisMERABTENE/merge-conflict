@@ -1,8 +1,7 @@
-Souvent il m'arrivait
-Devant mon chevalet de passer des nuits blanches
-Retouchant le dessin
-De la ligne d'un sein, du galbe d'une hanche
-Et ce n'est qu'au matin
+Quand au hasard des jours
+Je m'en vais faire un tour
+À mon ancienne adresse
+Je ne reconnais plus,
 Et si l'humble garni qui nous servait de nid
 Ne payait pas de mine
 C'est là qu'on s'est connu, moi qui criait famine et toi qui posais nue
