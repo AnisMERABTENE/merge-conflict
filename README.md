@@ -1,6 +1,8 @@
-Je vous parle d'un temps que les moins de 20 ans ne peuvent pas connaître
-Montmartre en ce temps-là
-Accrochait ses lilas, jusque sous nos fenêtres
+Souvent il m'arrivait
+Devant mon chevalet de passer des nuits blanches
+Retouchant le dessin
+De la ligne d'un sein, du galbe d'une hanche
+Et ce n'est qu'au matin
 Et si l'humble garni qui nous servait de nid
 Ne payait pas de mine
 C'est là qu'on s'est connu, moi qui criait famine et toi qui posais nue
