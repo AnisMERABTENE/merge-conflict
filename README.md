@@ -1,6 +1,7 @@
-Je vous parle d'un temps que les moins de 20 ans ne peuvent pas connaître
-Montmartre en ce temps-là
-Accrochait ses lilas, jusque sous nos fenêtres
+Quand au hasard des jours
+Je m'en vais faire un tour
+À mon ancienne adresse
+Je ne reconnais plus,
 Et si l'humble garni qui nous servait de nid
 Ne payait pas de mine
 C'est là qu'on s'est connu, moi qui criait famine et toi qui posais nue
